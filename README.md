@@ -2,4 +2,4 @@
 Winning entry of WorldSkills Portugal 2020 (Videogame Development Category)
 
 Download:
-https://mega.nz/#F!jdtH1IBK!xhNU8ObfQx986Be3fZ3gOQ (1.87 GB)
+https://mega.nz/folder/SFExlSQS#-Qfy7dNoabAFdExKYwe06A (1.87 GB)
